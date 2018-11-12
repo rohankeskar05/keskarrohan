@@ -1,3 +1,3 @@
 
-Thanks for visiting the Github Profile
+Thanks for visiting my Github Profile
 
